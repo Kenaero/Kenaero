@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning how to build a social media platform and many other things for the sake of being an efficient Machine Learning/Artificial Intelligence Expert Engineer.
 - 💞️ I’m looking to collaborate on anything that I can be useful for and get paid !
 - 📫 How to reach me, Instagram: @Kenaero.m
-- 😄 Pronouns: ML/AI Engineer
+- 😄 Pronouns: Kenaero, Ken, Keno
 - ⚡ Fun fact: I can shoot near half court shots as good as I can shoot free-throws
 
 <!---
